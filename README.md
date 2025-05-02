@@ -43,9 +43,7 @@ For a step-by-step guide and further learning, consider watching the following t
 
 For any queries or suggestions:
 
-- **Email:** [mureithilewins@gmail.com](mailto:mureithilewins@gmail.com)
-- **Phone:** [+254-112-876-340](tel:+254112876340)
-
+- 
 ---
 
 Feel free to reach out if you have any questions or need further assistance! 🚀
